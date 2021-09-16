@@ -4,4 +4,4 @@ Nuestro equipo esta conformado por:
 Mateo Barrios.
 Gisell Cristiano.
 Esteban Escobar.
-Yoneriton Sanchez.
+Jhon Erizon Chávez Sanchez.
